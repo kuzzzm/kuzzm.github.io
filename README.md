@@ -1,2 +1,2 @@
-# kuzzm.github.io
+# kuzzzm.github.io
 привет подписчики!!!
